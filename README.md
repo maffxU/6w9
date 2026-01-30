@@ -2,6 +2,5 @@
 
 [![image.jpg](https://i.postimg.cc/RZ7yRmhv/image.jpg)](https://postimg.cc/FYKTr206)
 
-IM SLEEPING 💤
 
 [![sharluvie-8-a.jpg](https://i.postimg.cc/MKjnPPyH/sharluvie-8-a.jpg)](https://postimg.cc/cr016ckG)
